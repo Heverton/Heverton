@@ -1,4 +1,4 @@
-### Olá Eu sou o Heverton Cruz 👨‍💻📘
+### Olá, Heverton Cruz 👨‍💻📘
 
 ### Contato 
 
